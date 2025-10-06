@@ -1,3 +1,0 @@
-# LiveCoding
-# LiveCoding
-# LiveCoding
